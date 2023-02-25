@@ -1,1 +1,0 @@
-# ajhelbig.github.io
